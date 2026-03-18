@@ -29,7 +29,7 @@
      cook for another minute until fragrant.
 
 3. **Thicken the Soup (Optional):**
-   - If you prefer a thicker soup, sprinkle the flour over the mushrooms and
+   - If you prefer a thicker soup, sprinkle the potato flour over the mushrooms and
      vegetables. Stir well to combine and cook for another minute.
 
 4. **Add the Broth:**
